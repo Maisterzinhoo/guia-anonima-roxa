@@ -6,4 +6,4 @@ Qualquer Dúvida me chama la no Discord <3 ++Maisterzin#3575
 
 Feito com Muito ❤️ por Maisterzin
 
-[image](https://user-images.githubusercontent.com/88456936/213947207-43e984ff-75a9-4217-8367-d90d5bcd3f22.png)
+![image](https://user-images.githubusercontent.com/88456936/213947207-43e984ff-75a9-4217-8367-d90d5bcd3f22.png)
